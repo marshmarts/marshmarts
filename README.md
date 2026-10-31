@@ -1,5 +1,9 @@
 
-![tiny love](https://github.com/user-attachments/assets/55383278-7b30-4719-bb53-7dc97f845f8d)
+<img width="736" height="736" alt="Untitled31_20261030210057" src="https://github.com/user-attachments/assets/e56d3246-8c5c-4e88-a9ff-840757c3bfc3" /> <img width="736" height="736" alt="Untitled31_20261030210100" src="https://github.com/user-attachments/assets/2fbdc967-9ee0-4e6d-8243-b87fcf5d7285" /> <img width="736" height="736" alt="Untitled31_20261030210109" src="https://github.com/user-attachments/assets/f7878ed3-011d-4e67-bd85-ed9d1c5e53f1" /> <img width="736" height="736" alt="Untitled31_20261030210111" src="https://github.com/user-attachments/assets/8d0cdf8f-ed2f-4961-a4a0-7fc98cd8fe6e" />
+
+
+
+
 
 Hi I like stuff 
 
