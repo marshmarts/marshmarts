@@ -3,7 +3,7 @@
 
 
 
-<img width="150" height="150" alt="undefined - Imgur" src="https://github.com/user-attachments/assets/1cdfde92-48e8-4d4c-b029-092bd4cfcb89" />
+<img width="150" height="150" src="https://github.com/user-attachments/assets/1cdfde92-48e8-4d4c-b029-092bd4cfcb89" />
 
 
 
