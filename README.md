@@ -7,7 +7,7 @@
 
 
 
-Hi I like stuff.                ( check out my strawpage! )
+Hi I like stuff.                
 
   I go by Marty, but you can also call me Colt or Kieran >_0
   
